@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🎀🎀
+### Boas vindas ao meu perfil 🎀
 
 Meu nome é Beatriz Amoedo
 
@@ -11,5 +11,3 @@ Meu nome é Beatriz Amoedo
 beatriz.amoedo99@gmail.com
 
 @beatrizamoedo
-
-![](https://media1.tenor.com/m/ALNgfWrgk1cAAAAC/sad-hamster-meme-sad-hamster.gif)
